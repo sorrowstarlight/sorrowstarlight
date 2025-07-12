@@ -1,7 +1,5 @@
-## Hi there 👋
-
-<!--
-**sorrowstarlight/sorrowstarlight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+HELLOOO!!!
+my name is zinnia and i am 15 years old! feel free to int with me at any time ^-^
 
 Here are some ideas to get you started:
 
