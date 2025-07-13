@@ -9,3 +9,4 @@ my [rentry](https://rentry.co/lvrsrot) also exists if u wnana get 2 know me bett
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/8e530b81-5646-4159-b679-69bdd4fd68ac" />
 <img width="100" height="100" alt="danger__toxic_sugar-removebg-preview" src="https://github.com/user-attachments/assets/be62f5da-ce43-4afe-8b77-8239a0852a8b" /> <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b3a2037c-93e1-4912-9da5-6aee6d255a19" />
 
+ㅤ![](https://komarev.com/ghpvc/?username=sorrowstarlight&color=f0d1f1&style=plastic&label=monsters)
