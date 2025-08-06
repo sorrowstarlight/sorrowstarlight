@@ -1,19 +1,16 @@
 <div align="center">
-<img src=https://i.postimg.cc/4x4gvVv2/tumblr-2c55e50841df93acc996600be90b5f4a-1d731d51-400.gif></p>
+<img src=https://i.postimg.cc/P5GGdWcr/tumblr-5542d42e1215d6c78b10a0d72607beb3-a4c0fc50-400.gif></p>
 
-<img width="50" height="70" alt="image" src="https://github.com/user-attachments/assets/8e530b81-5646-4159-b679-69bdd4fd68ac" />
-<img width="75" height="75" alt="danger__toxic_sugar-removebg-preview" src="https://github.com/user-attachments/assets/be62f5da-ce43-4afe-8b77-8239a0852a8b" />
-<img width="50" height="70" alt="image" src="https://github.com/user-attachments/assets/8e530b81-5646-4159-b679-69bdd4fd68ac" /> 
+<img src=https://i.postimg.cc/8CwHkPKh/tumblr-a35737fa722ac15e8b4f3f5-unscreen.gif width="450" height="400"/></p>
+my [rentry](https://rentry.co/sugaflowers) exists if u wanna get 2 know me 
+  and my [atabook](https://sorrowstarlight.atabook.org/) is there too if you'd like to sign it! ˆᗜˆ
 
-<img src=https://github.com/user-attachments/assets/8a6e6cb8-e877-468b-bdd9-cfb495293f5e width="550" height="500"/></p>
-always feel free 2 int w me !!! c+h ok too >^<
+ always feel free 2 interact or c+h with me!!! copying me or taking inspo is ok too,,, i don't mind at all !!! (^∇ ^˶)
 
- copy/inspo is fine (CREDIT NOT NEEDED!!!)
-
-check out my [rentry](https://rentry.co/cxndyrush) and make sure 2 sign my [atabook](https://sorrowstarlight.atabook.org/)! ˆᗜˆ
+fair warning i dont really have a dni so if i do not like you i will probably just block or hide you immediately,,, muchh easier 4 the both of us (ᵕ—ᴗ—)
 
 <img src="https://i.postimg.cc/cLhFjTRd/tumblr-16b3cb872598fe794ca07c57e015f70a-fc54a5b9-75.gif" />
 
-![](https://komarev.com/ghpvc/?username=sorrowstarlight&color=f0d1f1&style=plastic&label=monsters) 
+![](https://komarev.com/ghpvc/?username=sorrowstarlight&color=F5CCD9&style=plastic&label=smiles) 
 
-<img src=https://i.postimg.cc/4x4gvVv2/tumblr-2c55e50841df93acc996600be90b5f4a-1d731d51-400.gif></p>
+<img src=https://i.postimg.cc/P5GGdWcr/tumblr-5542d42e1215d6c78b10a0d72607beb3-a4c0fc50-400.gif></p>
