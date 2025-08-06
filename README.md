@@ -5,11 +5,11 @@
 
 <div align="center">
 
- always feel free 2 interact or c+h with me!!! copying or taking inspo is ok too,,, i don't care that much !! (˶^ ∇ ^˶)
+ always feel free 2 interact or c+h !!! copying or taking inspo is ok too,,, i don't care that much !!! (˶^ ∇ ^˶)
 
 fair warning i dont have a dni so i block/hide people very freely,,, sowryry but its muchh easier 4 the both of us (ᵕ—ᴗ—)
 
-my interests and stuff ar on my rentry.. so go look at that if you wanna know!!! >^<
+my interests and stuff ar on my [rentry](https://rentry.co/sugaflowers).. so go look at that if you wanna know!!! >^<
 
 <img src="https://i.postimg.cc/cLhFjTRd/tumblr-16b3cb872598fe794ca07c57e015f70a-fc54a5b9-75.gif" />
 
