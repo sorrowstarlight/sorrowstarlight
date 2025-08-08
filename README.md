@@ -9,7 +9,7 @@
 
 fair warning i dont have a dni so i block/hide people very freely,,, sowryry but its muchh easier 4 the both of us (ᵕ—ᴗ—)
 
-current main fandoms :: pjsk, utdr, alnst, pmmm, crk >^<
+i'm currently mostly into pjsk, utdr, alnst, pmmm, and crk !! >^<
 
 <img src="https://i.postimg.cc/cLhFjTRd/tumblr-16b3cb872598fe794ca07c57e015f70a-fc54a5b9-75.gif" />
 
