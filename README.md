@@ -6,10 +6,11 @@
 <div align="center">
 
  always feel free 2 interact or c+h !!! copying or taking inspo is ok too,,, i don't care that much !!! (˶^ ∇ ^˶)
+ if u wanna talk to me then u should whisper!! i PROMISE i didnt ignore u i probably just missed ur message im sosos sotry <//3 dont worry ab talking to me while im with a friend too i love meeting new people.. yayayay
 
 fair warning i dont have a dni so i block/hide people very freely,,, sowryry but its muchh easier 4 the both of us (ᵕ—ᴗ—)
 
-i'm currently mostly into pjsk, utdr, alnst, pmmm, and crk !! >^<
+thisis . still basically a wip im unhappy with how it looks i just cant be bothered to fix it.#wgatrever #followme #INeedToMakeBetterPonies
 
 <img src="https://i.postimg.cc/cLhFjTRd/tumblr-16b3cb872598fe794ca07c57e015f70a-fc54a5b9-75.gif" />
 
