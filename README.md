@@ -1,6 +1,6 @@
 <img src="https://i.postimg.cc/P5GGdWcr/tumblr-5542d42e1215d6c78b10a0d72607beb3-a4c0fc50-400.gif" width="70%"></p>
 
-<img src = "https://i.postimg.cc/dtThpnhc/image.gif" width = 20> **[rentry](https://rentry.co/sugarflowers) / [atabook](https://sorrowstarlight.atabook.org/)** <img src = "https://i.postimg.cc/dtThpnhc/image.gif" width = 20>
+<img src = "https://i.postimg.cc/dtThpnhc/image.gif" width = 20> **[rentry](https://rentry.co/cutribbon) / [atabook](https://sorrowstarlight.atabook.org/)** <img src = "https://i.postimg.cc/dtThpnhc/image.gif" width = 20>
 <img align="right" width=250px img src=https://i.postimg.cc/8CwHkPKh/tumblr-a35737fa722ac15e8b4f3f5-unscreen.gif/></p>
 
 <div align="center">
