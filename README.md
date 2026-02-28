@@ -11,7 +11,7 @@
  feel free 2 int with me,, even if im w a friend !!! copying/taking inspo is ok ,, i don't rlly care !!! (^◡^)
  if u ever wanna speak to me then u should probably whisper cuz otherwise im very likely to miss it 
 
- i only friend/followback friends,, so if i ignored a request dont take it to heart!! just talk2 me more,,i suck at starting convos w people im notclose with so umm sorryok
+ i only friend/followback friends,, so if i ignored a request dont take it to heart!! just talk2 me more,,i suck at starting convos w people im notclose withtho so umm sorryokok
  
  i dont have a dni i just block people if i feel like it,,, its easier 4 me ,,,gomenasai okk (ᵕ -ᴗ-)
   
