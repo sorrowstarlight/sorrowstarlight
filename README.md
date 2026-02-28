@@ -8,15 +8,15 @@
 
 <img align="right" width=250px img src=https://i.postimg.cc/8CwHkPKh/tumblr-a35737fa722ac15e8b4f3f5-unscreen.gif/></p>
 
- always feel free 2 interact with me,, even if im with a friend !!! copying or taking inspo is ok ,, i don't rlly care !!! (^◡^)
+ feel free 2 int with me,, even if im w a friend !!! copying/taking inspo is ok ,, i don't rlly care !!! (^◡^)
  if u ever wanna speak to me then u should probably whisper cuz otherwise im very likely to miss it 
 
- i only friend/followback friends,, so if i ignored a request dont take it to heart! just talk 2 me more!!!iwill. probably not start convos myselfif idku too well cuz id overthink it too much andid get nowher.e,. ok ...
+ i only friend/followback friends,, so if i ignored a request dont take it to heart!! just talk2 me more,,i suck at starting convos w people im notclose with so umm sorryok
  
- i do not have an actual dni,, i just block people if i dont like them. its never personal,,, its just easier 4 me  (ᵕ -ᴗ-)
+ i dont have dni i just block people if i feel like it,,, its easier 4 me ,,,gomenasai okk (ᵕ -ᴗ-)
   
 <p align=center> <a href=https://linktr.ee/flowersforbrains>linktree</a> ㅤ/ <a href=https://sorrowstarlight.atabook.org/>atabook</a> </p>
 
 <p align="left">
 <img src="https://i.postimg.cc/P5GGdWcr/tumblr-5542d42e1215d6c78b10a0d72607beb3-a4c0fc50-400.gif" width="70%"></p>
-this is a wip,,,,sighghg ill lock in eventually,, i just cba ;-; 
+illmake it look better eventuallyokkk
