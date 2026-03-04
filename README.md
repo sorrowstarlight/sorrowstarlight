@@ -13,8 +13,8 @@
 
  i only friend/followback friends,, so if i ignored a request dont take it to heart!! just talk2 me more,,i suck at starting convos w people im notclose withtho so umm sorryokok
  
- i block people if i feel like it cuz its easier 4 me ,,,gomenasai (ᵕ -ᴗ-)
- roleplayers dni and also oc people keep in mind that idc about ur oc lore unless i directly ask 4 it!1!! okkk
+ i block people if i feel like it cuz its easier 4 me ,,,gomenasai..!
+ roleplayers dni and also oc people keep in mind that idc about ur oc lore unless i directly ask 4 it!1!! okkk (ᵕ -ᴗ-)
   
 <p align=center> <a href=https://linktr.ee/flowersforbrains>linktree</a> ㅤ/ <a href=https://sorrowstarlight.atabook.org/>atabook</a> </p>
 
