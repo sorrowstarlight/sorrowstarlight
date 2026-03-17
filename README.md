@@ -11,7 +11,7 @@
  feel free 2 int with me even if im sitting w someone !!! c+h is fine i just might not reciprocate it i guess. inspo is ok ,, i don't rlly care enuff,,..
  if u ever wanna speak to me then u should probably whisper cuz i dont check local and id probably miss it ( ╯◡╰ )
 
- i only accept requests/followback friends,, so if i ignored a request dont take it to heart!! just talk2 me more,,i suck at starting convos w people im notclose withtho so umm sorryokok
+ i only accept requests/followback friends,, so if i ignored a request dont take it to heart!! just talk2 me more,,i suck at starting convos w people im notclose withtho so umm sorryokok .&also dont drag me in2 dramaunlessits serious imtoo tired 4 that okay
  
  i block people if i feel like it cuz its easier 4 me ,,,gomenasai..!
  roleplayers dni and also oc people keep in mind that idc about ur oc lore unless i directly ask 4 it!1!! okkk (ᵕ -ᴗ-)
