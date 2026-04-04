@@ -20,4 +20,4 @@
 
 <p align="left">
 <img src="https://i.postimg.cc/P5GGdWcr/tumblr-5542d42e1215d6c78b10a0d72607beb3-a4c0fc50-400.gif" width="70%"></p>
-illmake it look better eventuallyokkk
+ill make it look better eventually. 
