@@ -10,5 +10,5 @@
  
 <br/>
 
-![.](https://komarev.com/ghpvc/?username=sorrowstarlight&color=D9B4C0&style=plastic&label=smiles)
+![.](https://komarev.com/ghpvc/?username=sorrowstarlight&color=FFD4E2&style=plastic&label=smiles)
 <p align=center> <a href=https://linktr.ee/flowersforbrains>linktree</a> ㅤ/ <a href=https://sorrowstarlight.atabook.org/>atabook</a> </p>
