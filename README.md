@@ -1,23 +1,14 @@
 <div align="center">
-<img src="https://i.postimg.cc/cLhFjTRd/tumblr-16b3cb872598fe794ca07c57e015f70a-fc54a5b9-75.gif" />
-
-![.](https://komarev.com/ghpvc/?username=sorrowstarlight&color=F5CCD9&style=plastic&label=smiles)
-
-<p align="left">
-<img src="https://i.postimg.cc/P5GGdWcr/tumblr-5542d42e1215d6c78b10a0d72607beb3-a4c0fc50-400.gif" width="70%"></p>
-
-<img align="right" width=250px img src=https://i.postimg.cc/8CwHkPKh/tumblr-a35737fa722ac15e8b4f3f5-unscreen.gif/></p>
-
- feel free 2 int with me even if im sitting w someone !!! c+h is fine i just might not reciprocate it i guess. inspo is ok ,, i don't rlly care enuff,,..
- if u ever wanna speak to me then u should probably whisper cuz i dont check local and id probably miss it ( ╯◡╰ )
-
- i only accept requests/followback friends,, so if i ignored a request dont take it to heart!! just talk2 me more,,i suck at starting convos w people im notclose withtho so umm sorryokok .&also dont drag me in2 dramaunlessits serious imtoo tired 4 that okay
+୨୧
+<br/>
+ i'm stuck wondering, what do i want to do? what do i want to do? what do i want to do?
  
- i block people if i feel like it cuz its easier 4 me ,,,gomenasai..!
- roleplayers dni and also oc people keep in mind that idc about ur oc lore unless i directly ask 4 it!1!! okkk (ᵕ -ᴗ-)
-  
-<p align=center> <a href=https://linktr.ee/flowersforbrains>linktree</a> ㅤ/ <a href=https://sorrowstarlight.atabook.org/>atabook</a> </p>
+ all these unnecessary thoughts tangled up inside my head...
+ 
+<p align="center">
+<img width="280" height="280" alt="image" src="https://64.media.tumblr.com/882876aa3c3fc7310ef1087d61714a86/814882c2a39d8d68-0f/s2048x3072/f087206a7444458faae4777fca8cad6335accdc3.jpg" />
+ 
+<br/>
 
-<p align="left">
-<img src="https://i.postimg.cc/P5GGdWcr/tumblr-5542d42e1215d6c78b10a0d72607beb3-a4c0fc50-400.gif" width="70%"></p>
-ill make it look better eventually. 
+![.](https://komarev.com/ghpvc/?username=sorrowstarlight&color=D9B4C0&style=plastic&label=smiles)
+<p align=center> <a href=https://linktr.ee/flowersforbrains>linktree</a> ㅤ/ <a href=https://sorrowstarlight.atabook.org/>atabook</a> </p>
