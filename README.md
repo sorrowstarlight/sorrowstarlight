@@ -6,7 +6,7 @@
  all these unnecessary thoughts tangled up inside my head...
  
 <p align="center">
-<img width="280" height="280" alt="image" src="https://64.media.tumblr.com/882876aa3c3fc7310ef1087d61714a86/814882c2a39d8d68-0f/s2048x3072/f087206a7444458faae4777fca8cad6335accdc3.jpg" />
+<img width="320" height="200" alt="image" src="https://64.media.tumblr.com/882876aa3c3fc7310ef1087d61714a86/814882c2a39d8d68-0f/s2048x3072/f087206a7444458faae4777fca8cad6335accdc3.jpg" />
  
 <br/>
 
